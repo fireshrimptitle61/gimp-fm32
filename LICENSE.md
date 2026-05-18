@@ -1,4 +1,4 @@
-# 
+# professional Adobe Photoshop PC版 插件 是最佳 Adobe Photoshop PC版 插件，集成 拖放编辑器 和 RAW文件支持。安全、可靠、优化，性能最大化。
 
 
 
